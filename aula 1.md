@@ -1,4 +1,4 @@
-# Analise Critica
+dsdsdsdsdsdsd# Analise Critica
 
 1: Modelo The Pasta Store – Anúncio para grupo de WhatsApp de condomínio.
 
